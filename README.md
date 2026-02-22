@@ -9,7 +9,7 @@ I love **coding, building complex software & websites**, and **learning new tech
 
 - **BSc in Computer Science**  
   **University:** University of Peshawar  
-  **Semester:** 7th  
+  **Semester:** 8th  
   **Location:** Peshawar, KPK, Pakistan
 
 ---
